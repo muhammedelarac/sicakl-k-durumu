@@ -1,0 +1,1 @@
+# sicakl-k-durumu
